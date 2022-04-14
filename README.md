@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->print
 system>network>instagram
-jetmir.idrizi.b
+jetmir.idrizi.b give password
